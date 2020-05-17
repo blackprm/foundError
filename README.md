@@ -6,3 +6,6 @@
 ### 1989 ![TEST](https://www.helloimg.com/images/2020/05/16/198913734760ae8336ac.png) 
 #### 选择题第四题 傅式展开超纲数二
 ### 1990 第九大题 曲线积分超纲
+### 1991
+#### ![null](https://www.helloimg.com/images/2020/05/17/1991323e9497a5ae43c8.png)
+#### ![null](https://www.helloimg.com/images/2020/05/17/1991-23781e492e604bc23.png)

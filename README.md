@@ -9,3 +9,7 @@
 ### 1991
 #### ![null](https://www.helloimg.com/images/2020/05/17/1991323e9497a5ae43c8.png)
 #### ![null](https://www.helloimg.com/images/2020/05/17/1991-23781e492e604bc23.png)
+### 1992
+#### ![19928c2fa22c0c4aafb2.th.png](https://www.helloimg.com/images/2020/05/19/19928c2fa22c0c4aafb2.png)
+#### ![1992-12b3acbd1e49417a0.th.png](https://www.helloimg.com/images/2020/05/19/1992-12b3acbd1e49417a0.png)
+#### ![1992-2887fcbdeadb9855e.th.png](https://www.helloimg.com/images/2020/05/19/1992-2887fcbdeadb9855e.png)
